@@ -1,5 +1,5 @@
-# lilyofthevalley
-" Steady your heartbeat... Don't be afraid. It's not scary as you think. "
+# lily of the valley
+" my thoughts will follow you into your dreams "
 </p>
 # 💫 About Me:
 Heavy WIP <33 ! Come back next time, heh...<br>𝜗𝜚 About me<br>⟢ BYI !<br>⟢ DNI !<br>⟢ MISC !!
