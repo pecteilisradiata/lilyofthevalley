@@ -1,5 +1,4 @@
-# lily of the valley
-" my thoughts will follow you into your dreams "
+# " my thoughts will follow you into your dreams "
 </p>
 # 💫 About Me:
 Heavy WIP <33 ! Come back next time, heh...<br>𝜗𝜚 About me<br>⟢ BYI !<br>⟢ DNI !<br>⟢ MISC !!
